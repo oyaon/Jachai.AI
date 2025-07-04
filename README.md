@@ -1,1 +1,1 @@
-# Jachai.ai
+# Jachai.AI
